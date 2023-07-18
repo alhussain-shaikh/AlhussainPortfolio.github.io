@@ -9,6 +9,7 @@ Portfolio Link:- https://lnkd.in/dnx8ss6X
 My commitment to growth and continuous learning drives me to stay up-to-date with the latest technologies and industry trends. I hold degrees, certifications, and have gained practical experience that further solidify my foundation. With a track record of successfully delivering projects and a dedication to quality, I am ready to take on new challenges and make valuable contributions to teams and organizations.
 
 Here is Some Screensort of My portfoilio
-![Portfolio1](https://github.com/alhuss![P![Portfolio3](https://github.com/alhussain-shaikh/AlhussainPortfolio.github.io/assets/116242196/d7a34c10-1b96-4fe1-a4c7-99824858711e)
-ortfolio2](https://github.com/alhussain-shaikh/AlhussainPortfolio.github.io/assets/116242196/4a7d82a2-9ee7-4910-b98b-86a7e4d54259)
-ain-shaikh/AlhussainPortfolio.github.io/assets/116242196/176c706e-c333-46e8-ae37-f769db85af07)
+![Portfolio1](https://github.com/alhussain-shaikh/AlhussainPortfolio.github.io/assets/116242196/25920c09-03ea-494d-9764-bcd6928eabfc)
+
+![Portfolio2](https://github.com/alhussain-shaikh/AlhussainPortfolio.github.io/assets/116242196/f4359a92-2701-4ddc-afe7-92480c1ea663)
+![Portfolio3](https://github.com/alhussain-shaikh/AlhussainPortfolio.github.io/assets/116242196/d8ac68b7-9f49-45c2-998a-1f489e5063ff)
